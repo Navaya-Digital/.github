@@ -133,8 +133,8 @@ but for sustainability.
 For inquiries or collaboration:
 
 - Website: [Coming Soon]  
-- Email: contact@navayadigital.com  
-- Instagram / LinkedIn: @navayadigital  
+- Email: digitalnavaya@gmail.com  
+- Instagram / LinkedIn: Coming Soon
 
 ---
 
